@@ -1,6 +1,7 @@
 ### ooo bicho veio
 
 meu nome é vandaime
+Hoje vou passar uma lista de tutorias impotamtes para o dia a dia 
 
 Vou te ensinar a dar tiro de [espingarda](https://www.youtube.com/shorts/irjRGZpkAsk?feature=share)
 
